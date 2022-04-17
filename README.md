@@ -18,6 +18,7 @@ y con conviccion de crecer tanto personal como intelectualmente.
 - 💞️ Estoy buscando una oferta laboral  en cualquier campo de la tecnologia.Puedo aprender y asimilar facilmente nuevo conocimiento relacionado a la tecnologia
 - 📫 Puedes contactarme mediante mi correo personal:
 
+Mi Portafolio personal: https://dannyandress.github.io/danielurrea.com/
 
 imdanny99@hotmail.com
 Via Whatssap: (+57)3502396016
